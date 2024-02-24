@@ -1,4 +1,4 @@
-## Trading-View | [Click To Install]()
+## Trading-View | [Click To Install](https://bit.ly/49pw1c9)
 
 # Screenshot App
 
